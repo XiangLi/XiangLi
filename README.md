@@ -8,5 +8,5 @@ Here are some ideas to get you started:
 -->
 - 🔭 I’m currently working on Quality control and Reliability.
 - 🌱 I’m currently learning Jazz and hippop.
-- 📫 Reach me by lix_116@163.com.
+- 📫 Reach me by lix_1116@163.com.
 - ⚡ Dancing with me!
